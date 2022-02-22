@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pinki69
+- 👀 I’m interested in C++, Html & CSS proggraming languages.
+- 🌱 I’m currently learning C++
+- 📫 How to reach me -- DISCORD : Pinki#7063
